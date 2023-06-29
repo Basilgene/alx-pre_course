@@ -1,1 +1,1 @@
-My first readme
+God help me to be serious with my scholarship
